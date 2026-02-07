@@ -1,0 +1,1 @@
+Windows transparency manager / While i playing game i wanna read some novels or watch some things in other apps, I don'T know about some things but i can change transparency of games isn't it easy ? so i create one app for that !
